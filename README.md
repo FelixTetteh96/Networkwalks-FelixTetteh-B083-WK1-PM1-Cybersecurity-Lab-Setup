@@ -256,7 +256,7 @@ This laboratory is intended strictly for education purposes only.
 **Felix Tetteh**\
 Cybersecurity Learner B082
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://lnkd.in/p/dWp53STZ)
+LinkedIn: [https://lnkd.in/p/dWp53STZ]
 
 ---
 
